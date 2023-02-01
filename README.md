@@ -19,4 +19,4 @@ Linkedin :hand: https://www.linkedin.com/in/natalia-saidman/
     
 Mail :hand: licnataliasaidman@gmail.com
 
-Acá comparto son algunos de los proyectos que realicé :point_down:
+Acá les comparto algunos de los proyectos que realicé :point_down:
